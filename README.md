@@ -1,1 +1,1 @@
-hardword beats talent
+hardwork beats talent
